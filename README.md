@@ -1,5 +1,9 @@
 not sure if anyone is still doing this follow friday business but here is our prep for this weeks friday.
 
+#TheUnknownBox #ff @pawsiem @szwanot @CroquisKrokette #gamedev 
+
+![](https://pbs.twimg.com/media/CFXusEdWgAAz6oN.jpg)
+
 following some silly games on twitter earlier this week:
 
 <blockquote class="twitter-tweet" lang="en"><p lang="en" dir="ltr">First 2 fields graphic project done. :D&#13;Do You like It? <a href="https://twitter.com/hashtag/gamedev?src=hash">#gamedev</a> <a href="http://t.co/Ahdm5WbBcC">pic.twitter.com/Ahdm5WbBcC</a></p>&mdash; Paweł Siemienik (@pawsiem) <a href="https://twitter.com/pawsiem/status/600639772885917696">May 19, 2015</a></blockquote>
